@@ -4,8 +4,4 @@ i code stuff
 
 ok bye
 
-Any projects that I personally make will eventually be open source, I don't fw that closed source shit! #opensourceforever
-
-# Site Creds
-
-maybekoi (me!) - everything
+90% of my projects WILL be open source (eventually, UNLESS it's a decompilation of a paid game, I don't wanna get sued lol), I don't fw that closed source shit
