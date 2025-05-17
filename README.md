@@ -10,3 +10,7 @@ ok bye
 discord server for ports and decomps: https://discord.gg/7umw5ZEY94
 
 discord server for personal projects: https://discord.gg/6hjCCQuMYy
+
+some of my game decomps will be uploaded to my @SnesFX acc
+
+other stuff like programs and stuff I experiment with will be uploaded to @koishiGH
