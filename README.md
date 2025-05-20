@@ -1,6 +1,8 @@
 hi im koi
 
-i code stuff
+im a 16 year old self proclaimed pro coder (I forget how my code works 90% of the time)
+
+i code stuff because i dont wanna end up like the people in my school vaping, smoking, etc etc.
 
 ok bye
 
