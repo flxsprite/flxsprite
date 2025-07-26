@@ -10,6 +10,6 @@ notice how my life has gotten slightly better ever since i got rejected :pray:
 
 ok bye
 
-discord server: https://discord.gg/nBRMrrjw
+discord server: https://discord.gg/7umw5ZEY94
 
 other stuff like programs and stuff I experiment with will be uploaded to @koishiGH
