@@ -11,7 +11,9 @@ notice how my life has gotten slightly better ever since i got rejected :pray:
 ok bye
 
 discord server: https://discord.gg/7umw5ZEY94
+
 my site: https://flxsprite.xyz
+
 oldgrounds: https://oldgrounds.xyz
 
 other stuff like programs and stuff I experiment with will be uploaded to @koishiGH
