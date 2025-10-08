@@ -16,4 +16,4 @@ my site: https://flxsprite.xyz
 
 oldgrounds: https://oldgrounds.xyz
 
-other stuff like programs and stuff I experiment with will be uploaded to @koishiGH
+other stuff like programs and stuff I experiment with will be uploaded to @koish1t
